@@ -2,4 +2,4 @@
 
 - Kunal Kushwaha says that this community is amazing.
 - Kunal made this change
-- Hi , i watched your videos
+- Hi - i watched your videos
