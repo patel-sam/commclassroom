@@ -2,3 +2,6 @@
 
 - Kunal Kushwaha says that this community is amazing.
 - Kunal made this change
+
+-The tutorial is well made.
+-Ranjan made this change 
